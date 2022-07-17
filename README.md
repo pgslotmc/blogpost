@@ -12,6 +12,6 @@
 | โปรโมชั่น100% | 50รับ100 | [สมัครสมาชิก](https://liff.line.me/1657270386-qGjJG67J) | 
 | เข้าสู่เว็บไซต์ | ช่องทางเข้าเล่น | [เข้าสู่ระบบ](https://liff.line.me/1657270386-nqbjvqgj) |
 
-- รับทราบข่าวสารต่างๆได้ก่อนใคร [PGMC-NEWPOST](https://pgslotmc.github.io/newpost)
+- รับทราบข่าวสารต่างๆได้ก่อนใคร [PGMC-POST](https://pgslotmc.github.io/post)
 
 ## เกมแนะนำวันนี้ 
