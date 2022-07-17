@@ -1,3 +1,4 @@
+![pgmc](https://avatars.githubusercontent.com/u/107170080?s=96&v=4)
 # [```PGMC```](https://pgslotmc.com) [```ยินดีต้อนรับ```](https://lin.ee/4RhSvlG) [```SLOTPG```](https://pgslotmc.com)
 
 # [**`เงื่อนไขเครดิตฟรี`**](https://pgslotmc.github.io/newpost/เอกสาร/)
