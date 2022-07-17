@@ -1,5 +1,6 @@
-# [```PGMC```](https://pgslotmc.com) [```ยินดีต้อนรับ```](https://lin.ee/4RhSvlG) [```SLOTPG```](https://pgslotmc.com) 
-# **`เงื่อนไขเครดิตฟรี`**
+# [```PGMC```](https://pgslotmc.com) [```ยินดีต้อนรับ```](https://lin.ee/4RhSvlG) [```SLOTPG```](https://pgslotmc.com)
+
+# [**`เงื่อนไขเครดิตฟรี`**](https://pgslotmc.github.io/newpost/เอกสาร/)
 ---
 - ทำกิจกรรมที่ลิงค์ด้านล่างเลยค่ะ
 
